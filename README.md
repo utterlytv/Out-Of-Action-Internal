@@ -1,7 +1,9 @@
-inject with your injector of choice
+inject with your injector of choice, made with love from UtterlyTV from unknowncheats discord is oggtreason , i will make a server soon for this internal and any others i release so people can
 
 Extreme inj, processhacker etc..
 Videos of the Cheat in action. : 
+https://vimeo.com/manage/videos/1162714504
+https://streamable.com/4sl2si
 
 DELETE KEY to OPEN GUI Menu
 
